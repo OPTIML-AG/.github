@@ -1,4 +1,4 @@
-## OPTIML GmbH
+## OPTIML AG
 
-[Website](http://optiml.ch)
+[Website](http://optiml.com)
 
